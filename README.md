@@ -35,3 +35,11 @@ Best Selling Retailer: Sodapop outperformed other retailers in sales.
 Geographical Trends: New York and California contributed the highest revenue.
 
 
+**Contact:-
+For any questions, feedback, or collaboration opportunities, feel free to reach out:
+
+Email: anjalisachidanad2002@gmail.com
+
+GitHub: [https://github.com/anjali2006406]
+
+
